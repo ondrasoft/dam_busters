@@ -70,7 +70,8 @@ přehrady v Porúří:
 
 ## Průběh operace
 
-Noc 16/17 května 1943
+* Noc 16/17 května 1943
+* podrobný popis zde: https://www.valka.cz/10993-Boritele-hrazi-III-dil?utm_source=valka_cz&utm_medium=article&utm_campaign=serial
 
 ## Výsledky operace
 
