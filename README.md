@@ -96,6 +96,20 @@ přehrady v Porúří:
 * Letoun S/Ldr Younga byl sestřelen na cestě zpět v 02:58 hodin nad holandským pobřežím, sedl nouzově do moře. Nikdo nepřežil.
 * W/Cdr Gibson povolal do útoku F/Lt Maltbyho. I jeho útok byl přesný a poté, co voda opadla, bylo vidět, že hráz je konečně protržena. Otvorem přibližně 90x90m se začal valit ohromný vodopád, který zaplavoval údolí pod přehradou. 
 * 17.5. 00:52 hodin byl vyslán kód “NIGGER”, který byl zachycen i ve vzdálené Anglii. V tu chvíli A/M Harris, A/V/M Cochrane i Dr Wallis propukli v jásot, nemožné se podařilo.
+* Ale nálet pokračoval a W/Cdr Gibson povolal zbytek 1. vlny na Eder. Údolí přehrady bylo již pomalu zaléváno mlhou a chvíli trvalo, než bylo identifikováno. 
+* Jako první zaútočil F/Lt Shannon, který nebyl obtěžován flakem, protože tam žádný nebyl. I tak bylo přiblížení dosti obtížné, a tak 
+* F/Lt Shannon provedl čtyři pokusy, přičemž žádný nebyl dost dobrý. Přece jen údolí bylo hluboké a na klidu nepřidala ani mlha. 
+* Když to viděl W/Cdr Gibson odvolal F/Lt Shannona, aby poodlétl a trochu se zkoncentroval. 
+* Mezitím se k útoku připravil F/Lt Maudslay. Ten provedl jedno neúspěšné přiblížení, ale při druhém již odhodil. Bohužel se nezdařilo. Buď letěli velkou rychlostí či odhodili pozdě, ale v každém případě bomba narazila do koruny nad vodou a vybuchla. V záři exploze byl spatřen letoun F/Lt Maudslaye přímo nad epicentrem výbuchu. Letoun pomalu otočil a letěl zpět do Anglie. Bohužel nedoletěl a byl sestřelen flakem v 02:35 nad Emmerichem. Z osádky zahynuli všichni. 
+* Mezitím F/Lt Shannon opakoval nálet a napoprvé odhodil. Zásah byl přesný, ale kromě rozbouřené vodní hladiny se nic nestalo. Poslední letoun s bombou na palubě byl Lancaster F/Lt Knigta. Ten dirigován W/Cdr Gibsonem provedl perfektní přiblížení i odhoz. Po tomto útoku hráz nevydržela a provalila se. Poté mohl být v 01:52 hodin odeslán kód “DINGHY” a zbylé letouny se otočily zpět do Anglie, kde úspěšně přistály.
+
+* 17.5. 00:46 F/Lt McCarthy, jediný z druhé vlny, dolétl k Sorpe. Ta byla zalitá mlhou tak, že trvalo téměř deset minut, než byl cíl pozitivně identifikován. F/Lt McCarthy nasadil do útoku v 00:46 hodin a již na první pokus trefil přesně. Bohužel to bylo málo a Sorpe žádnou újmu neutrpěla.
+* 17.5. 00:09–00:15 Zatímco se první vlna blížila k cíli v Scamptonu odstartovala třetí vlna tvořená osádkami P/O Ottley, P/O Burpee, F/Sgt Towsend, F/Sgt Brown a F/Sgt Anderson. 
+* 17.5. 02:00 byl nad letištěm Gilze-Rijen sestřelen letoun P/O Burpeeho V této výšce neměl nikdo šanci na přežití. 
+* 17.5. 02:35 hodin byl nedaleko Hammu sestřelen i letoun P/O Ottleye. Tento sestřel zpozoroval W/Cdr Gibson, který letěl na zpět do Scamptonu. Jediný, kdo přežil, byl zadní střelec Sgt Tees, jenž se stal válečným zajatcem. 
+* Zbylé letouny pokračovaly k cílům. Letoun F/Sgt Browna byl nasměrován na Sorpe. Ta nebyla téměř k nalezení pro mlhu. Naštěstí se mlha na chvíli rozpustila, a tak bylo možno útočit. Povedlo se až na osmý pokus v 03:41hod, ale bomba nebyla dostatečně přesná, aby hráz protrhla.
+* Další letoun F/Sgt Towsenda byl nasměrován na Lister, ale kvůli mlze byl cíl zaměněn za přehradu Schwelme. Po třetím pokusu byl v 03:14 odhoz přesný, avšak hráz byla pouze poškozena. Poslední letoun F/Sgt Andersona byl směrován na Sorpe, která však byla zahalena mlhou tak, že nebyla nalezena. A tak letoun F/Sgt Andersona otočil zpět do Anglie i s bombou zpět.
+* Během této doby začaly v Scamptonu přistávat letouny první vlny. Jako prvý v 03:11 F/Lt Maltby, v 03:19 F/Lt Martin, 03:23 F/Lt McCarthy, 04:06 F/Lt Shannon, 04:15 W/Cdr Gibson, 04:20 F/lt Knigt, o hodinu později F/Sgt Brown, F/Sgt Anderson a jako poslední téměř za rozbřesku v 06:15 hodin F/Sgt Towsend.
 
 ## Výsledky operace
 
