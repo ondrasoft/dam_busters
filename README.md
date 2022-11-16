@@ -72,6 +72,22 @@ přehrady v Porúří:
 
 * Noc 16/17 května 1943
 * podrobný popis zde: https://www.valka.cz/10993-Boritele-hrazi-III-dil
+* 15.5. nastal kýžený okamžik. A/V/M Cochrane telefonoval W/Cdr Gibsonovi, aby spustil operaci CHASTISE, pokud bude přát počasí. 
+* 15.5. 15:00-20:00 hod proběhl briefing pilotů a navigátorů, kde byly vydány pokyny pro provedení náletu. Byly sem dopraveny makety všech přehrad, na které se mělo útočit. 
+* 16.5. 12:00 přistálo průzkumné Mosquito s čerstvými snímky přehrad, které ukazovaly, že přehrady jsou plné po okraj. Meteoslužba vydala předpověď, kde se konstatovalo, že počasí pro útok je plně vyhovující.
+* 16.5. byl svolán briefing všech osádek. Teprve zde se peruť dozvěděla, jaký je cíl náletu. Poté následovala večeře a nástup do letounů
+* 16.5. 21:10 byla vypálena zelená světlice pro 2. vlnu, která letěla jako první, poněvadž její trasa byla delší.
+* Bohužel Lancaster AJ-Q F/Lt McCartyho byl neschopen pro poruchu hydrauliky a proto byl odstaven. Osádka přesedla do záložního AJ-T a přitom se F/Lt McCarthymu rozbalil padák. Takže se čekalo, až dorazí náhradní. 
+* 16.5. 21:29 hod odstartoval F/Lt Munro a dále F/Lt Barlow, P/O Byers, P/O Rice. 
+* 16.5. 21:39 startovala první vlna a to: první roj W/Cdr Gibson, F/Lt Hopgood , F/Lt Martin, druhý roj S/Ldr Young, F/Lt Maltby, F/Lt Shannon a třetí roj F/Lt Maudslay, F/Lt Astell, F/lt Knigt
+* 16.5. 22:01 startoval F/Lt McCarthy se záložním letounem.
+* 16.5. 23:00 začly první potíže. Letoun F/Lt Munroa dostal při přeletu ostrova Texel zásah od flaku, který kompletně vyřadil radiokomunikaci, a to jak vnitřní tak vnější, a po pěti minutách letu byl nucen otočit nazpět do Scamptonu, kde dosedl v 00:36 hod
+* 16.5. 23:00 sklesal P/O Rice do výšky 18 m podle světlometů, když v tom se ozvala rána a letoun se dotkl vodní hladiny. Světlomety byly špatně seřízeny. Pilot prudce přitáhl a začal stoupat, nicméně bomba se nárazem utrhla zmizela a zadní střelec Sgt. Burns se málem utopil. Nicméně letoun otočil zpět a v Scamptonu dosedl v 00:47 hod.
+* 16.5. 23:00 letoun F/Lt Barlowa narazil u Haldernu (Nizozemí) do drátů elektrického vedení a zřítil se. Z osádky nepřežil nikdo. 
+* 16.5. 23:01 byla flakem doslova smetena z oblohy i osádka P/O Byerse. 
+* Takže z druhé vlny pokračoval již jenom F/Lt McCarthy, který startoval později a tudíž neletěl ve skupině. 
+* 17.5. 00:09-00:15 Třetí vlna se zvedla do vzduchu, a to v pořadí P/O Ottley, P/O Burpee, F/Sgt Towsend, F/Sgt Brown a jako úplně poslední F/Sgt Anderson.
+* 17.5. 00:15 se odchýlil od kursu i F/Lt Astell a byl sestřelen nad Dorstenem. Ani z této osádky nepřežil nikdo. Jak vidno, během hodiny bylo flakem sestřeleno či poškozeno pět letadel, přičemž z druhé vlny pokračoval jen jeden letoun. Poté letouny otočily kurs jih a za 10 minut se ocitly nad Möhne.
 
 ## Výsledky operace
 
