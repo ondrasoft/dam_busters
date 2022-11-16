@@ -71,7 +71,7 @@ přehrady v Porúří:
 ## Průběh operace
 
 * Noc 16/17 května 1943
-* podrobný popis zde: https://www.valka.cz/10993-Boritele-hrazi-III-dil?utm_source=valka_cz&utm_medium=article&utm_campaign=serial
+* podrobný popis zde: https://www.valka.cz/10993-Boritele-hrazi-III-dil
 
 ## Výsledky operace
 
@@ -80,6 +80,8 @@ přehrady v Porúří:
 * britské ztráty - 8 z 19 strojů (53 z 113 členů osádek) se z náletu nevrátilo
 * skákající bomba od té doby již nebyla použita
 * ze zbývajících skákajících bomb byly vymontovány roznětky a bomby byly shozeny do Severního moře ještě před koncem války
+* Škody, napáchané německému průmyslu pouhými 19 letouny, byly nedozírné. 330 milionů kubických metrů vody zaplavilo vše do vzdálenosti 80 km. Byly strženy důležité mosty, zaplaveny doly, města, továrny i vojenské objekty. Zničeno bylo 125 továren, odplaveno 3 000 ha orné půdy, 25 mostů strženo a 21 těžce poškozeno, utonulo přes 6 500 hospodářských zvířat a 1 294 osob, z čehož bylo 750 zajatců a válečně nasazených. Dlouhodobá ztráta produkce asi 100 000 dělníků na několik měsíců. Po náletu Němci přehrady opravili a zabezpečili proti dalším útokům, ale bylo již pozdě. Na přehrady už zaútočeno nikdy nebylo.
+* Při tomto náletu byl také poprvé nevědomky použit systém tzv. „MASTER BOMBER“, což znamenalo, že jeden člověk dirigoval celý nálet a určoval, co kdo má dělat. Tento princip byl rozvíjen a do konce války byl efektivně rozpracován do detailů a využit. Však také němečtí noční stíhači prahli po tom, aby takového „ceremoniáře“ sestřelili co nejdříve.
 
 ## Zajímavosti: 
 * Pes Wing Commandera Guye Gibsona - Labradorský retrívr se ve skutečnosti jmenoval Nigger (Negr), což bylo až do 50. let 20. století naprosto běžné jméno pro psa, ovšem po roce 2000 použití tohoto jména vyovolalo značnou kontroverzi: <https://en.wikipedia.org/wiki/Nigger_(dog>), Nigger bylo dokonce použito jako morse kód oznamující prolomení přehrady Möhne (viz výše). Niggera přejelo auto ráno v den útoku a byl pohřben na základně o půlnoci, kdy 
